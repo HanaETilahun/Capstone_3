@@ -96,7 +96,7 @@ The report highlights important sales trends and product performance patterns wi
 ## Video Demonstration
 
 Video Link:
-(https://yearuptemp-my.sharepoint.com/:p:/g/personal/htilahun_my_yearupunited_org/IQARRV-GaWN2Q4o5CYmYxKNAAXZM_uSsryxt4ci24oteQRU?e=E5OG8V)
+(Add your recording link here)
 
 ## Author
 
